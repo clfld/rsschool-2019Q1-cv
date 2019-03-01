@@ -7,7 +7,7 @@ Tatsiana Babraunichaya
 ### Address 
 Minsk, street L.Byady 4.
 ### Email
-deepestbreath@yandex.ru .
+deepestbreath@yandex.ru 
 
 tanyatanya1719@gmail.com
 ## Summary 
@@ -23,5 +23,5 @@ codeacademy.com
 Rolling Scopes School
 
 ## English level
-B1(Intermediate). Courses: 2 semesters. Every day practice with foreign friends, also reading and listening some content.
+B1(Intermediate). Courses: 2 semesters. Every day practice with foreign friends, also reading and listening some content in the Internet.
 
